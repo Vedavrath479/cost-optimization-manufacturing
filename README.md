@@ -61,5 +61,5 @@ cost-optimization-manufacturing/
 ## 📬 Contact
 
 Feel free to connect or reach out:
-- 📧 rapellivedavrath7@gmail.comj
-- 🌐 [LinkedIn]([https://www.linkedin.com/in/vedavrath-rapelli/]
+- 📧 rapellivedavrath7@gmail.com
+- 🌐 [LinkedIn]([https://www.linkedin.com/in/vedavrath-rapelli/])
